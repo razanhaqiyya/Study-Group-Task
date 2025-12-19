@@ -1,1 +1,1 @@
-Tugas GDGOC
+Tugas Study Group GDGOC
